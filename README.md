@@ -3,4 +3,5 @@
 Free Open Source Roblox Bedwars Exploit
 
 ## Paicher will always be free
-## Just dont skid you skidder
+## Join the discord server yo
+## https://discord.gg/M3bYUXsH8E
